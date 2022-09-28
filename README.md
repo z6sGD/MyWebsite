@@ -1,2 +1,2 @@
 # MyWebsite
-this is my website! enjoy!
+THIS IS MY WEBSITE, IM NEW AT CODING, DON'T CRITISIZE ME
